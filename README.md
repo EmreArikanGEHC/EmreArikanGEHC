@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Emre.
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in __many things__.
+- 🌱 I’m currently learning __bunch of stuff__.
+- 💞️ I’m looking to collaborate on __anything that'll make life better on earth for as many as possible__
 - 📫 How to reach me: emre.arikan@ge.com
   
 
